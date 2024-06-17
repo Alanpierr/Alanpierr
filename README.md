@@ -20,7 +20,7 @@ voce pode entrar em contato comigo 📧 00001251434312sp@al.educacao.sp.gov.br
 
 
 
-![image](https://github.com/Alanpierr/Alanpierr/assets/170682698/b50d34e0-3797-4631-ae3b-73acaa94d73c)
+
 
 
 
